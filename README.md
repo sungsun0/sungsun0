@@ -11,3 +11,5 @@ You can call me Sunny ☆ I am a minor and neruodivergent (audhd), so I am kinda
 <img align="right" src="https://github.com/sungsun0/sungsun0/blob/41eae20213eee6018519b6cb7901bea958faae7f/download%20(9).jpg" width="200" height="200">
 <h3>Pony Town</h3>
 If you have found this page, it's most likely from Pony Town !! I usually hang out in the mcyt and mlp areas, with the occasional roam around the place. If I am a fandom pony, feel free to interact and c + h ! However, if I am myself/a different name, please ask before interacting 🌀 Usually Quackity, Ranboo or Nyan Cat pony and can be offtab at times (but it will be clear when I am). Idm if you friend me but we must have something in common. And please, if you're a hardcore wilbur supporter please dni... you'll often know it's me if my non-fandom characters have a !? cutie mark.
+
+<img src="https://github.com/sungsun0/sungsun0/blob/a28977817b58d38f734b1a532a1cfd5c87675660/%E5%85%83_%E9%BB%84%E5%85%AC%E6%9C%9B_%E5%AF%8C%E6%98%A5%E5%B1%B1%E5%B1%85%E5%9B%BE.jpg">
