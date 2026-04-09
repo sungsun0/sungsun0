@@ -1,3 +1,3 @@
 ## ──★ ˙☁️ ̟ !!
-<img src="https://github.com/sungsun0/sungsun0/blob/32d9e2d1334a656bd977689fb8f23aa8186a72b6/controlers.jpg" width="1200" height="120">
+<img src="https://github.com/sungsun0/sungsun0/blob/0b311b20320dd079277d1cffa9cc26ee1e12b206/controlering.jpg" width="1200" height="120">
 
