@@ -12,4 +12,4 @@ You can call me Sunny ☆ I am a minor and neruodivergent (audhd), so I am kinda
 <h3>Pony Town</h3>
 If you have found this page, it's most likely from Pony Town !! I usually hang out in the mcyt and mlp areas, with the occasional roam around the place. If I am a fandom pony, feel free to interact and c + h ! However, if I am myself/a different name, please ask before interacting 🌀 Usually Quackity, Ranboo or Nyan Cat pony and can be offtab at times (but it will be clear when I am). Idm if you friend me but we must have something in common. And please, if you're a hardcore wilbur supporter please dni... you'll often know it's me if my non-fandom characters have a !? cutie mark.
 <br></br>
-──────────────────────────────────────── • ☆ • ─────────────────────────────────────
+──────────────────────────────────────── • ☆ • ───────────────────────────────────────
