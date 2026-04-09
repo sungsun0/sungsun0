@@ -3,4 +3,4 @@
 
 <img src="https://github.com/sungsun0/sungsun0/blob/964fac33d21f762e9ceffe7d1ab308e05f1afc84/%23ateez%20%23seonghwa%20%23icon_.jpeg" width="200" height="200" float="left">
 
-<p float="right" hellos! you can call me sunny>
+<p float="right" hellos! you can call me sunny</p>
