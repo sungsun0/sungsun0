@@ -1,5 +1,3 @@
-## Hi there 👋
-
 WSG MY GANG !
 
 <!--
