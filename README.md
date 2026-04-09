@@ -1,4 +1,5 @@
 ## ──★ ˙☁️ ̟ !!
 
 <img src="https://github.com/sungsun0/sungsun0/blob/0b311b20320dd079277d1cffa9cc26ee1e12b206/controlering.jpg" width="1200" height="120">
-<p><img src="https://github.com/sungsun0/sungsun0/blob/964fac33d21f762e9ceffe7d1ab308e05f1afc84/%23ateez%20%23seonghwa%20%23icon_.jpeg" width="200" height="200"> hellos! you can call me sunny</p>
+<img src="https://github.com/sungsun0/sungsun0/blob/964fac33d21f762e9ceffe7d1ab308e05f1afc84/%23ateez%20%23seonghwa%20%23icon_.jpeg" width="200" height="200"> 
+  hellos! you can call me sunny
