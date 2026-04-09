@@ -7,3 +7,4 @@ You can call me Sunny ☆ I am a minor and neruodivergent (audhd), so I am kinda
 <br></br>
 <p align="right">Read my carrd too know more about me :p ! I often talk a lot about my interest when I feel like it, however I can sometimes not know how to act in social situations so please be patient :( </p>
 <a href="https://sungsun0.carrd.co/">carrd</a> ☆ <a href="https://x.com/sung_sun0">twitter</a> ☆ <a href="https://spacehey.com/sung_sun0">spacehey</a> does work but blocked in aus :(
+
