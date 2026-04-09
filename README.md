@@ -5,4 +5,4 @@
 <h3>hello!</h3>
 you can call me sunny ,, i am a minor and i am neruodivergent (audhd) so i am kinda hesitant to interact first (unless i compliment you!). this is a second acc used for online use so i may not be online very often.
 
-<p align="right" "hihihihihihihi"</p>
+<p style="align=right" hihihihihihihi</p>
