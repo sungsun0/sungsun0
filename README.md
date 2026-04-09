@@ -1,4 +1,4 @@
-<b>WSG MY GANG !</b>
+**WSG MY GANG !**
 
 <!--
 **sungsun0/sungsun0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
