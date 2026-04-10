@@ -20,3 +20,10 @@ If you have found this page, it's most likely from Pony Town !! I usually hang o
     <p>I like kpop (bands i like in my carrd), i watch thai bl (mdl linked in carrd), i like videogames like mc, roblox, ponytown, tf2, cs2/csgo, i also like oject shows especially bfdi and inanimate insanity, i like mlp (gen4), I LOVE JEFF SATUR AND TEETEEPOR !!</p>
   </div>
 </details>
+<details>
+  <summary><ins> byf + dni! </ins></summary>
+  <div align="left">
+    <p><b>byf!</b>swear a lot online, I will not interact until you do (sorry), often kys / kms jokes, spam a lot, talk ab my interest</p>
+    <p><b>dni</b>If you're racist, homophobic, participate in fanwars, don't respect others opinion, will harass others for "fun", don't respect privacy, zionest, political, 20+ (unless i interect first)</p>
+  </div>
+</details>
