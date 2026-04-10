@@ -15,7 +15,7 @@ If you have found this page, it's most likely from Pony Town !! I usually hang o
 ─────────────────────────────────────── • ☆ • ───────────────────────────────────────
 <h3><img align="right" src="https://github.com/sungsun0/sungsun0/blob/b12fddc3ae1263b86ac49a08c87d47519ad01535/download%20(13).jpg" width="237" height="160.5"><img align="left" src="https://github.com/sungsun0/sungsun0/blob/18fb8a8c64599b1294c2dffeec26fd213878757b/download%20(11).jpg" width="237" height="160.5">More About Me!</h3>
 <ins>Interests</ins>
-<p>I like kpop (bands i like in my carrd), i watch thai bl (mdl linked in carrd), i like videogames like mc, roblox, ponytown, tf2, cs2/csgo, i also like oject shows especially bfdi and inanimate insanity, i like mlp (gen4), I LOVE JEFF SATUR AND TEETEEPOR !!</p>
-  byf + dni!
+<p>I like kpop (bands i like in my carrd), i watch thai bl (mdl linked in carrd), i like videogames like mc, roblox, ponytown, tf2, cs2/csgo, i also like object shows especially bfdi and inanimate insanity, i like mlp (gen4), I LOVE JEFF SATUR AND TEETEEPOR !!</p>
+<ins>byf + dni!</ins>
     <p><b>byf!</b> I swear a lot online, I will not interact until you do (sorry), often kys / kms jokes, spam a lot, talk ab my interest</p>
     <p><b>dni</b> If you're racist, homophobic, participate in fanwars, don't respect others opinion, will harass others for "fun", don't respect privacy, zionest, political, 20+ (unless i interect first)</p>
