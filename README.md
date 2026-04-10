@@ -17,6 +17,6 @@ If you have found this page, it's most likely from Pony Town !! I usually hang o
 <details>
   <summary><ins> Interests </ins></summary>
   <div align="left">
-    <p>I like kpop (bands i like in my carrd), i watch thai bl (mdl linked in carrd), i like videogames like mc, roblox, ponytown, tf2, cs2/csgo, i also like oject shows especially bfdi and inanimate insanity, i like mlp (gen4 specifically), I LOVE JEFF SATUR AND TEETEEPOR FIUEWRHOHWEOEF</p>
+    <p>I like kpop (bands i like in my carrd), i watch thai bl (mdl linked in carrd), i like videogames like mc, roblox, ponytown, tf2, cs2/csgo, i also like oject shows especially bfdi and inanimate insanity, i like mlp (gen4), I LOVE JEFF SATUR AND TEETEEPOR</p>
   </div>
 </details>
