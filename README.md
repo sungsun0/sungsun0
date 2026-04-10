@@ -13,20 +13,17 @@ You can call me Sunny ☆ I am a minor and neruodivergent (audhd), so I am kinda
 If you have found this page, it's most likely from Pony Town !! I usually hang out in the mcyt and mlp areas, with the occasional roam around the place. If I am a fandom pony, feel free to interact and c + h ! However, if I am myself/a different name, please ask before interacting 🌀 Usually Quackity, Ranboo or Nyan Cat pony and can be offtab at times (but it will be clear when I am). Idm if you friend me but we must have something in common. And please, if you're a hardcore wilbur supporter please dni... you'll often know it's me if my non-fandom characters have a !? cutie mark.
 <br></br>
 ─────────────────────────────────────── • ☆ • ───────────────────────────────────────
-<p>
-  <img align="left" src="https://github.com/sungsun0/sungsun0/blob/18fb8a8c64599b1294c2dffeec26fd213878757b/download%20(11).jpg" width="237" height="160.5">
-  <h3><img align="left" src="https://github.com/sungsun0/sungsun0/blob/18fb8a8c64599b1294c2dffeec26fd213878757b/download%20(11).jpg" width="237" height="160.5">More About Me!</h3>
-  <details>
-    <summary><ins> Interests </ins></summary>
-    <div align="left">
+<h3><img align="left" src="https://github.com/sungsun0/sungsun0/blob/18fb8a8c64599b1294c2dffeec26fd213878757b/download%20(11).jpg" width="237" height="160.5">More About Me!</h3>
+<details>
+  <summary><ins> Interests </ins></summary>
+  <div align="left">
       <p>I like kpop (bands i like in my carrd), i watch thai bl (mdl linked in carrd), i like videogames like mc, roblox, ponytown, tf2, cs2/csgo, i also like oject shows especially bfdi and inanimate insanity, i like mlp (gen4), I LOVE JEFF SATUR AND TEETEEPOR !!</p>
-    </div>
-  </details>
-  <details>
-    <summary><ins> byf + dni! </ins></summary>
-    <div align="left">
-      <p><b>byf!</b> I swear a lot online, I will not interact until you do (sorry), often kys / kms jokes, spam a lot, talk ab my interest</p>
-      <p><b>dni</b> If you're racist, homophobic, participate in fanwars, don't respect others opinion, will harass others for "fun", don't respect privacy, zionest, political, 20+ (unless i interect first)</p>
-    </div>
-  </details>
-</p>
+  </div>
+</details>
+<details>
+  <summary><ins> byf + dni! </ins></summary>
+  <div align="left">
+    <p><b>byf!</b> I swear a lot online, I will not interact until you do (sorry), often kys / kms jokes, spam a lot, talk ab my interest</p>
+    <p><b>dni</b> If you're racist, homophobic, participate in fanwars, don't respect others opinion, will harass others for "fun", don't respect privacy, zionest, political, 20+ (unless i interect first)</p>
+  </div>
+</details>
