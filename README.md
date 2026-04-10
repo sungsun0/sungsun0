@@ -17,6 +17,6 @@ If you have found this page, it's most likely from Pony Town !! I usually hang o
 <details>
   <summary><ins> Interests </ins></summary>
   <div align="left">
-    <p>I like your mum</p>
+    <p>I like your mum  like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum like your mum</p>
   </div>
 </details>
