@@ -23,7 +23,7 @@ If you have found this page, it's most likely from Pony Town !! I usually hang o
 <details>
   <summary><ins> byf + dni! </ins></summary>
   <div align="left">
-    <p><b>byf!</b>swear a lot online, I will not interact until you do (sorry), often kys / kms jokes, spam a lot, talk ab my interest</p>
-    <p><b>dni</b>If you're racist, homophobic, participate in fanwars, don't respect others opinion, will harass others for "fun", don't respect privacy, zionest, political, 20+ (unless i interect first)</p>
+    <p><b>byf!</b> I swear a lot online, I will not interact until you do (sorry), often kys / kms jokes, spam a lot, talk ab my interest</p>
+    <p><b>dni</b> If you're racist, homophobic, participate in fanwars, don't respect others opinion, will harass others for "fun", don't respect privacy, zionest, political, 20+ (unless i interect first)</p>
   </div>
 </details>
