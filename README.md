@@ -14,6 +14,7 @@ If you have found this page, it's most likely from Pony Town !! I usually hang o
 <br></br>
 ─────────────────────────────────────── • ☆ • ───────────────────────────────────────
 <p>
+  <img align="left" src="https://github.com/sungsun0/sungsun0/blob/18fb8a8c64599b1294c2dffeec26fd213878757b/download%20(11).jpg" width="237" height="160.5">
   <h3><img align="left" src="https://github.com/sungsun0/sungsun0/blob/18fb8a8c64599b1294c2dffeec26fd213878757b/download%20(11).jpg" width="237" height="160.5">More About Me!</h3>
   <details>
     <summary><ins> Interests </ins></summary>
