@@ -1,6 +1,6 @@
 ## ──★ ˙☁️ ̟ !!
 
-<img src="https://github.com/sungsun0/sungsun0/blob/0b311b20320dd079277d1cffa9cc26ee1e12b206/controlering.jpg" width="1200" height="120">
+<img src="https://github.com/sungsun0/sungsun0/blob/bca46d0c0a103876c91b3b51dab3ae00bac50831/banner.jpg" width="1200" height="120">
 <img align="left" src="https://github.com/sungsun0/sungsun0/blob/1c99c93f0950e285ffceca607e1c12db3a4a2121/teetee.png" width="200" height="200"> 
 <h3>HELLO !!</h3>
 You can call me Sunny ☆ I am a minor and neruodivergent (audhd), so I am kinda hesitant to interact first (unless i compliment you!). This is a second acc used for online use so I may not be online very often. <b><i>Use of tone tags would be appreciated ! (helps me understand the convo T^T)</i></b>
