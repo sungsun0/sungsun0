@@ -15,4 +15,5 @@ You can call me Sunny ☆ I am a minor and neruodivergent (audhd), so I am kinda
     Usual areas I'm at: mcyt, mlp, and tf2 areas, with the occasional roam around. Feel free to interact and c + h if I'm a fandom pony :3 However, if I am myself/a different name, please ask before interacting! We must interact for at least 10 minutes and have something in common before friending. HEAVY DNI wilbur/dream/george supporters please... Idm if you c! them BUT IF YOU ARE A GENIUNE SUPPORTER/ENJOYER OF ANY OF THE ABOVE PLEASE DNI. If AFK or offtab in my name or sleeping, I will most likely NOT interact. Might disconnect at times either due to shitty wifi or uncomfortable, and I do swear by accident on safe server so may get kicked 😔</p> 
  </details>
 </div>
+<br>
 ──────────────────────────────────────── • ☆ • ───────────────────────────────────────
