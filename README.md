@@ -9,7 +9,7 @@ You can call me Sunny ☆ I am a minor and neruodivergent (audhd), so I am kinda
 <a href="https://sungsun0.carrd.co/">carrd</a> ☆ <a href="https://x.com/sung_sun0">twitter</a> ☆ <a href="https://spacehey.com/sung_sun0">spacehey</a> does work but blocked in aus :(
 <div align="center">
   <details>
-    <summary>${{\color{#6c3baa}\normalsize{\textsf{𝙋𝙤𝙣𝙮 𝙏𝙤𝙬𝙣~}}}}$</summary>
+    <summary>${{\color{#6c3baa}\normalsize{\textsf{𝙋𝙤𝙣𝙮 𝙏𝙤𝙬𝙣.ᐟ}}}}$</summary>
     <p align="left">
     <img align="right" src="https://i.pinimg.com/736x/b0/a6/c4/b0a6c46c4315928980bd2de441bfab25.jpg" height="190">
     Usual areas I'm at: mcyt, mlp, and tf2 areas, with the occasional roam around. Feel free to interact and c + h if I'm a fandom pony :3 However, if I am myself/a different name, please ask before interacting! We must interact for at least 10 minutes and have something in common before friending. HEAVY DNI wilbur/dream/george supporters please... Idm if you c! them BUT IF YOU ARE A GENIUNE SUPPORTER/ENJOYER OF ANY OF THE ABOVE PLEASE DNI. If AFK or offtab in my name or sleeping, I will most likely NOT interact. Might disconnect at times either due to shitty wifi or uncomfortable, and I do swear by accident on safe server so may get kicked 😔</p> 
