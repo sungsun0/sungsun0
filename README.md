@@ -17,7 +17,6 @@
 If I'm a fandom pony, freely c + h (unless you meet my dni criteria). If I'm an irl/other pony, please ask before interacting! We must have something in common before friending and I selectivly accept friend requests. HEAVY DNI cc!wilbur & cc!dreamteam supporters please... c! enjoyers are okay to int, but geniune supports PLEASE DNI. Might disconnect due to shitty wifi or uncomfortable, and I do swear by accident on safe server so may get kicked 😔</p> 
  </details>
 </div>
-<br>
 <p align="center">
 <a href="https://spacehey.com/sung_sun0"><img src="https://github.com/sungsun0/sungsun0/blob/74f029e04da078c33acaf8fc3099a13dc63e94bf/spacehey%20(3).png" height="80"></a>
 ㅤㅤ<a href="https://sungsun0.carrd.co/"><img src="https://github.com/sungsun0/sungsun0/blob/74f029e04da078c33acaf8fc3099a13dc63e94bf/carrd%20(2).png" height="80"></a>
