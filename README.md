@@ -7,7 +7,7 @@
 <p>Process of deleting rentry... please be patient :^</p>
 <div align="center">
   <details>
-    <summary><h3>${{\color{#D72020}\normalsize{\textsf{𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻.ᐟ}}}}$</h3></summary>
+    <summary>${{\color{#D72020}\normalsize{\textsf{𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻.ᐟ}}}}$</summary>
     <p align="left">
     <img align="right" src="https://i.pinimg.com/736x/47/9c/2c/479c2c67bcff6833ab3e9335caecfebd.jpg" height="200">
 📍 MCYT, TF2, MLP and objectshow area with the occasional roam around<i>!</i><br>
