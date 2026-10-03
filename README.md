@@ -4,7 +4,22 @@
 <h3>HELLO !!</h3>
 <p>I am Sunny ☆ I'm a minor and neruodivergent (audhd). I love complimenting ponies, but I'm kinda hesitant to interact first and would LOVE for you to int. <b><i>I'm a tone tag appreciator as it helps me understand the convo better T^T</i></b></p>
 <p align="right">Read my carrd/rentry too know more about me <i>:p</i> I talk a lot about my interest when I'm comfortable <3 I can sometimes not know how to act in social situations so please be patient :( </p>
-<p>Process of deleting rentry... please be patient :^</p>
+<p>Process of deleting rentry... please be patient :^</p
+                                                       
+<div align="left">
+  <details>
+    <summary><h3>${{\color{#D72020}\normalsize{\textsf{𝗕𝘆𝗶.ᐟ}}}}$</h3></summary>
+    I swear a lot (gets me kicked out of the safe server), shy/hesitant to interact first so please come up to me_!_, I make kys/kms jokes so please tell me if you dislike that, sometimes I spam when I talk, I don't talk a lot unless it's about my interests, I prefer the use of tonetags especially if you're making a joke or serious statement but it's not needed, kinda bad at spelling and so I might be slow when talking T^T
+ </details>
+</div>
+
+<div align="right">
+  <details>
+    <summary><h3>${{\color{#D72020}\normalsize{\textsf{𝗗𝗻𝗶.ᐟ}}}}$</h3></summary>
+    Please dniuid -15/21+ especially if you are younger because our humors, interests, and talking styles are different, basic dni, participate in fanwars, genuinely harasses others for "fun", don't respect privacy, zionest/isr**l supports/not palestine supporter, political (sorry, it drains me when I talk about it), and then all that dark/proshipper stuff no thank you... If you're very outwardly rude, I don't appreciate that. If you fit any of these please do NOT interact.
+ </details>
+</div>
+
 <div align="center">
   <details>
     <summary><h3>${{\color{#D72020}\normalsize{\textsf{𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻.ᐟ}}}}$</h3></summary>
@@ -14,7 +29,7 @@
 🌙 = Idle: most likely offtab/afk, w2i and slow responses.<br>
 🟢 = Online: interact with me! Probably quick responses!<br>
 ⛔ = Busy: not usually on, but if it is then dniuf/dniuid.<br>
-If I'm a fandom pony, freely c + h (unless you meet my dni criteria). If I'm an irl/other pony, please ask before interacting! We must have something in common before friending and I selectivly accept friend requests. HEAVY DNI cc!wilbur & cc!dreamteam supporters please... c! enjoyers are okay to int, but geniune supports PLEASE DNI. Might disconnect due to shitty wifi or uncomfortable, and I do swear by accident on safe server so may get kicked 😔</p> 
+If I'm a fandom pony, freely c + h (unless you meet my dni criteria). If I'm an irl/other pony, please ask before interacting! We must have something in common before friending and I selectivly accept friend requests. HEAVY DNI cc!wilbur & cc!dreamteam supporters please... c! enjoyers are okay to int, but genuine supports PLEASE DNI. Might disconnect due to shitty wifi or uncomfortable, and I do swear by accident on safe server so may get kicked 😔</p> 
  </details>
 </div>
 <p align="center">
