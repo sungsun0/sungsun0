@@ -6,7 +6,7 @@
 <p align="right">Read my carrd too know more about me :p ! I often talk a lot about my interest when I feel like it, however I can sometimes not know how to act in social situations so please be patient :( </p>
 <br>
 <p align="center">
-<a href="https://spacehey.com/sung_sun0"><img src="https://github.com/sungsun0/sungsun0/blob/74f029e04da078c33acaf8fc3099a13dc63e94bf/spacehey%20(3).png" height="90"></a>
-ㅤㅤ<a href="https://sungsun0.carrd.co/"><img src="https://github.com/sungsun0/sungsun0/blob/74f029e04da078c33acaf8fc3099a13dc63e94bf/carrd%20(2).png" height="90"></a>
-ㅤㅤㅤ<a href="https://x.com/sung_sun0"><img src="https://github.com/sungsun0/sungsun0/blob/74f029e04da078c33acaf8fc3099a13dc63e94bf/twitter.png" height="90"></a>
+<a href="https://spacehey.com/sung_sun0"><img src="https://github.com/sungsun0/sungsun0/blob/74f029e04da078c33acaf8fc3099a13dc63e94bf/spacehey%20(3).png" height="80"></a>
+ㅤㅤ<a href="https://sungsun0.carrd.co/"><img src="https://github.com/sungsun0/sungsun0/blob/74f029e04da078c33acaf8fc3099a13dc63e94bf/carrd%20(2).png" height="80"></a>
+ㅤㅤㅤ<a href="https://x.com/sung_sun0"><img src="https://github.com/sungsun0/sungsun0/blob/74f029e04da078c33acaf8fc3099a13dc63e94bf/twitter.png" height="80"></a>
 </p>
