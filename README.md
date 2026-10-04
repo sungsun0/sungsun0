@@ -8,15 +8,19 @@
                                                        
 <div align="left">
   <details>
-    <summary><h3>${{\color{#D72020}\normalsize{\textsf{𝗕𝘆𝗶.ᐟ}}}}$</h3></summary>
-    I swear a lot (gets me kicked out of the safe server), shy/hesitant to interact first so please come up to me_!_, I make kys/kms jokes so please tell me if you dislike that, sometimes I spam when I talk, I don't talk a lot unless it's about my interests, I prefer the use of tonetags especially if you're making a joke or serious statement but it's not needed, kinda bad at spelling and so I might be slow when talking T^T
- </details>
-</div>
+    <summary><h3>${{\color{#D72020}\normalsize{\textsf{𝗕𝘆𝗶/𝗗𝗻𝗶.ᐟ}}}}$</h3></summary>
+    <table>
+      <tr>
+        <td>ㅤㅤㅤ𑣲⋆ Byiㅤㅤㅤ</td>
+        <td>I swear a lot (gets me kicked out of the safe server), shy/hesitant to interact first so please come up to me<i>!</i>, I make kys/kms jokes so please tell me if you dislike that, sometimes I spam when I talk, I don't talk a lot unless it's about my interests, I prefer the use of tonetags especially if you're making a joke or serious statement but it's not needed, kinda bad at spelling and so I might be slow when talking T^T</td>
+      </tr>
 
-<div align="right">
-  <details>
-    <summary><h3>${{\color{#D72020}\normalsize{\textsf{𝗗𝗻𝗶.ᐟ}}}}$</h3></summary>
-    Please dniuid -15/21+ especially if you are younger because our humors, interests, and talking styles are different, basic dni, participate in fanwars, genuinely harasses others for "fun", don't respect privacy, zionest/isr**l supports/not palestine supporter, political (sorry, it drains me when I talk about it), and then all that dark/proshipper stuff no thank you... If you're very outwardly rude, I don't appreciate that. If you fit any of these please do NOT interact.
+  <tr>
+    <td>ㅤㅤㅤᯓ★ Dniㅤㅤㅤ</td>
+    <td>Please dniuid -15/21+ especially if you are younger because our humors, interests, and talking styles are different, basic dni, participate in fanwars, genuinely harasses others for "fun", don't respect privacy, zionest/isr**l supports/not palestine supporter, political (sorry, it drains me when I talk about it), and then all that dark/proshipper stuff no thank you... If you're very outwardly rude, I don't appreciate that. If you fit any of these please do NOT interact.</td>
+  </tr>
+    </table>
+    
  </details>
 </div>
 
@@ -37,3 +41,4 @@ If I'm a fandom pony, freely c + h (unless you meet my dni criteria). If I'm an 
 ㅤㅤ<a href="https://sungsun0.carrd.co/"><img src="https://github.com/sungsun0/sungsun0/blob/74f029e04da078c33acaf8fc3099a13dc63e94bf/carrd%20(2).png" height="80"></a>
 ㅤㅤㅤ<a href="https://x.com/sung_sun0"><img src="https://github.com/sungsun0/sungsun0/blob/74f029e04da078c33acaf8fc3099a13dc63e94bf/twitter.png" height="80"></a>
 </p>
+
