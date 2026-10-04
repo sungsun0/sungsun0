@@ -23,7 +23,6 @@
     
  </details>
 </div>
-
 <div align="center">
   <details>
     <summary><h3>${{\color{#D72020}\normalsize{\textsf{𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻.ᐟ}}}}$</h3></summary>
