@@ -36,7 +36,7 @@ If I'm a fandom pony, freely c + h (unless you meet my dni criteria). If I'm an 
 </div>
 <p align="center">
 <a href="https://spacehey.com/sung_sun0"><img src="https://github.com/sungsun0/sungsun0/blob/74f029e04da078c33acaf8fc3099a13dc63e94bf/spacehey%20(3).png" height="80"></a>
-ㅤㅤ<a href="https://sungsun0.atabook.org/"><img src="https://github.com/sungsun0/sungsun0/blob/957c97db37ea751d110060c9f0d1cd8523073535/atabook%20(2).png" height="80"></a>
-ㅤㅤㅤ<a href="https://sungsun0.straw.page/"><img src="https://github.com/sungsun0/sungsun0/blob/957c97db37ea751d110060c9f0d1cd8523073535/strawpage.png" height="80"></a>
+ㅤㅤ<a href="https://sungsun0.atabook.org/"><img src="https://github.com/sungsun0/sungsun0/blob/957c97db37ea751d110060c9f0d1cd8523073535/atabook%20(2).png" height="77"></a>
+ㅤㅤㅤ<a href="https://sungsun0.straw.page/"><img src="https://github.com/sungsun0/sungsun0/blob/957c97db37ea751d110060c9f0d1cd8523073535/strawpage.png" height="77"></a>
 </p>
 
