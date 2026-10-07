@@ -4,7 +4,7 @@
 <h3>HELLO !!</h3>
 <p>I am Sunny ☆ I'm a minor and neruodivergent (audhd). I love complimenting ponies, but I'm kinda hesitant to interact first and would LOVE for you to int. <b><i>I'm a tone tag appreciator as it helps me understand the convo better T^T</i></b></p>
 <p align="right">Read my <a href="https://sungsun0.github.io/sung_sun0/">git pages</a> too know more about me <i>:p</i> I talk a lot about my interest when I'm comfortable <3 I can sometimes not know how to act in social situations so please be patient :( </p>
-<p>Process of deleting rentry... please be patient :^</p
+<p>>⩊<.ᐟ</p>
                                                        
 <div align="left">
   <details>
