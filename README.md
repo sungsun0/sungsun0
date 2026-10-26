@@ -16,7 +16,7 @@
 
   <tr>
     <td>ㅤㅤㅤᯓ★ Dniㅤㅤㅤ</td>
-    <td>Please dniuid -15/21+ especially if you are younger because our humors, interests, and talking styles are different, basic dni, participate in fanwars, genuinely harasses others for "fun", don't respect privacy, zionest/isr**l supports/not palestine supporter, political (sorry, it drains me when I talk about it), and then all that dark/proshipper stuff no thank you... roleplayers also please dni (not that i hate y'all i just dont wanna roleplay) If you're very outwardly rude, I don't appreciate that. If you fit any of these please do NOT interact.</td>
+    <td>Please dniuid -15/21+ especially if you are younger because our humors, interests, and talking styles are different, basic dni, participate in fanwars, genuinely harasses others for "fun", don't respect privacy, zionest/isr**l supports/not palestine supporter, political (sorry, it drains me when I talk about it), and then all that dark/proshipper stuff no thank you... roleplayers also please dni (not that i hate y'all i just dont wanna roleplay), if you fake mental disorders genuinely y'all pmo because you're hurting people with the actual disorder for your selfish attention. If you're very outwardly rude, I don't appreciate that. If you fit any of these please do NOT interact.</td>
   </tr>
     </table>
     
