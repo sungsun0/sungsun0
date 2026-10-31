@@ -19,13 +19,6 @@
     <td>Please dniuid -15/21+ especially if you are younger because our humors, interests, and talking styles are different, basic dni, participate in fanwars, genuinely harasses others for "fun", don't respect privacy, zionest/isr**l supports/not palestine supporter, political (sorry, it drains me when I talk about it), and then all that dark/proshipper stuff no thank you... roleplayers also please dni (not that i hate y'all i just dont wanna roleplay), if you fake mental disorders genuinely y'all pmo because you're hurting people with the actual disorder for your selfish attention. If you're very outwardly rude, I don't appreciate that. If you fit any of these please do NOT interact.</td>
   </tr>
     </table>
-    <div align="center">
-    <details>
-      <summary><h3>${{\color{#D72020}\normalsize{\textsf{Secret}}}}$</h3></summary>
-https://github.com/user-attachments/assets/c8e24731-56ab-4f07-809b-14959c18355d
-    </details>
- </details>
-    </div>
 </div>
 <div align="center">
   <details>
@@ -45,3 +38,4 @@ If I'm a fandom pony, freely c + h (unless you meet my dni criteria). If I'm an 
 ㅤㅤㅤ<a href="https://sungsun0.straw.page/"><img src="https://github.com/sungsun0/sungsun0/blob/957c97db37ea751d110060c9f0d1cd8523073535/strawpage.png" height="77"></a>
 </p>
 
+https://github.com/user-attachments/assets/c8e24731-56ab-4f07-809b-14959c18355d
