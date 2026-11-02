@@ -38,4 +38,4 @@ If I'm a fandom pony, freely c + h (unless you meet my dni criteria). If I'm an 
 ㅤㅤㅤ<a href="https://sungsun0.straw.page/"><img src="https://github.com/sungsun0/sungsun0/blob/957c97db37ea751d110060c9f0d1cd8523073535/strawpage.png" height="77"></a>
 </p>
 
-https://github.com/user-attachments/assets/c8e24731-56ab-4f07-809b-14959c18355d
+https://github.com/user-attachments/assets/5f72594f-e42f-4fe2-bebb-d4059bb50d89
