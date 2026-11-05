@@ -29,7 +29,8 @@
 🌙 = Idle: most likely offtab/afk, w2i and slow responses.<br>
 🟢 = Online: interact with me! Probably quick responses!<br>
 ⛔ = Busy: not usually on, but if it is then dniuf/dniuid.<br>
-If I'm a fandom pony, freely c + h (unless you meet my dni criteria). If I'm an irl/other pony, please ask before interacting! We must have something in common before friending and I selectivly accept friend requests. HEAVY DNI cc!wilbur & cc!dreamteam supporters please... c! enjoyers are okay to int, but genuine supports PLEASE DNI. Might disconnect due to shitty wifi or uncomfortable, and I do swear by accident on safe server so may get kicked 😔</p> 
+If I'm a fandom pony, freely c + h (unless you meet my dni criteria). If I'm an irl/other pony, please ask before interacting! We must have something in common before friending and I selectivly accept friend requests. HEAVY DNI cc!wilbur & cc!dreamteam supporters please... c! enjoyers are okay to int, but genuine supports PLEASE DNI. Might disconnect due to shitty wifi or uncomfortable, and I do swear by accident on safe server so may get kicked 😔</p>
+    <p align="center">THANK YOU <a href="https://github.com/Ponytowns-rewards">@Ponytowns-rewards</a> FOR PONY TOWN'S JEFF SATUR >:3</p>
  </details>
 </div>
 <p align="center">
